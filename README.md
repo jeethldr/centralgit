@@ -1,3 +1,0 @@
-# centralgit
-love from singapore
-
